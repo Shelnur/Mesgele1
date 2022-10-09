@@ -1,4 +1,4 @@
-# Linkedln hesablari
+#Linkedln hesablari
 Mesgele1
 Səttarlı Süleyman-https://www.linkedin.com/in/suleyman-settarli-34bab5252/
 Heydərova Fidan-https://www.linkedin.com/in/fidan-heydarova
